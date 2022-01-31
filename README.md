@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Kuttiraj-HR,
 - 👀 I’m an Talent Acquisition Specialist (Qualified HR)
-- 🌱 I’m currently working in ILINK DIGITAL (CMMI Level 3 Company).
+- 🌱 I’m currently working in ILINK DIGITAL (CMMI Level 3 MNC Company).
 - 💞️ I’m working as an Corporate HR, dedicated my life to search the right resources to the company.
 - 📫 How to reach me M: 6369317124.
 
